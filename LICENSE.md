@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks secure Scripts offers the most advanced jump to steal lucky blocks Script, with speed and anti-ban. Perfect for dominating
 
 
 
